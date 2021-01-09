@@ -1,4 +1,8 @@
-### Hi there 👋
+### Здарова Бандитка
+проверка
+с др тип)))
+ыхыыххыхы
+
 
 <!--
 **alkashina/alkashina** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
